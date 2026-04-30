@@ -124,6 +124,8 @@ We thank the faculty of the Computer Science Department and the research communi
 
 ## 📬 Contact
 📧 Palak632.be22@chitkara.edu.in  
+📧 sakshi2229.be22@chitkara.edu.in  
+
 
 ---
 
